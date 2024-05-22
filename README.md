@@ -1,4 +1,4 @@
-[](https://yt3.googleusercontent.com/iXgB6yEvBM8wDf1Svtc5LrnXVqRoOXfnOi5D6HYHQhOiDSCtKNV_UxDjFOVWbsyD9PYRgwb9=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
+
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/skbtech) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/sakib3046) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sakib.3046) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/sakib3046) [![Reddit](https://img.shields.io/badge/Reddit-%23FF4500.svg?logo=Reddit&logoColor=white)](https://reddit.com/user/sakib3046) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/sakib3046) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://www.youtube.com/channel/UCJC06djTk0LVIVj5NKw6mPg) 
 
